@@ -1,2 +1,0 @@
-# VikasPatel
-About me
